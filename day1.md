@@ -1,3 +1,1 @@
-ㅇㅁㅇ
-
-![images](/Users/gimtaehyeong/Downloads/images.jpeg)
+![images](/Users/gimtaehyeong/github/blog/images/day1/images-0286381.jpeg)
